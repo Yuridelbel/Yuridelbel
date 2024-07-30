@@ -2,11 +2,9 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me escola
 - 😄 Pronouns: fiat uno duas escadas 
 - ⚡ Fun fact: eu sou legal
-
-<!---
-Yuridelbel/Yuridelbel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 🤓 work of: Apyr
+- 🫣 how many centimeters: 1,80🥵
+- 🥱 play free fire: Tudo91737, add bebê
