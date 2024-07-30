@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Yuridelbel
-- 👀 I’m interested in ...
+- 👀 I’m interested in: Góticas
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me escola
+- 📫 How to reach me: escola
 - 😄 Pronouns: fiat uno duas escadas 
 - ⚡ Fun fact: eu sou legal
 - 🤓 work of: Apyr
